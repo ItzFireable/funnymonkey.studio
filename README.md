@@ -1,3 +1,3 @@
 # funnymonkey.studio
 MONKE
-FSJAYFSAFASFASFKASFJKJKASFKJSA
+![snek](https://i.imgur.com/hoBeDDw.png)
